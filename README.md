@@ -1,1 +1,0 @@
-# nielukichtranglada.github.io
